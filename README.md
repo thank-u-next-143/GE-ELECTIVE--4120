@@ -6,8 +6,6 @@ Hi, I'm Mclean Pespeñan!
 
 🌟 About Me
 
-Hello! I'm Mclean Pespeñan, a nursing student who enjoys music, creativity, makeup, and learning new things.
-
 🎓 Currently pursuing a Bachelor of Science in Nursing
 🩺 Passionate about Nursing & Healthcare
 🎤 I love singing and expressing myself through music
